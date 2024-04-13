@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Innermosttuba01
 - 👀 I’m interested in Gaming and writing
-- 🌱 I’m currently learning EVerything I can about coding
+- 🌱 I’m currently learning Everything I can about coding
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me email is the best way
 - 😄 Pronouns: he/him
